@@ -1,3 +1,3 @@
-Luke McDonald
-Partner: Sam Mauck
+Luke McDonald - lukemcd1994
+Partner: Sam Mauck - smmauck
 Lab 3
